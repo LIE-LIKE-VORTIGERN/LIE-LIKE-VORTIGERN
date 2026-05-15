@@ -1,6 +1,4 @@
 
 
 <p align="center">
-  <img src="https://i.pinimg.com/originals/2b/11/86/2b1186b5be15326decc10ec11493cbe0.gif">
-<p align="center"> 
-i love my beautiful gorgeous wife
+  <img src="https://static.wikia.nocookie.net/fategrandorder/images/0/01/S316_Expression_AvalonLeFae_Background2.png/revision/latest/scale-to-width-down/1000?cb=20211127155852">
